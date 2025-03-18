@@ -6,3 +6,4 @@ Jude Arais
 John Ferd Silva
 Kaselyn Cates Ponteres
 Kristel Gabinete
+Sofia Concha
